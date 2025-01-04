@@ -5,7 +5,7 @@
 
 The **BronceBlass APK** is a tool for enhancing the **Free Fire** experience. Developed by BronceBlass FF, this app offers players various strategies, in-game updates, and security features to optimize their gameplay. Designed for Android devices, it caters specifically to Free Fire players who want to maximize their performance and stay ahead in the game.
 
-# Download Click: 🎮 https://heyapks.com/ 🎮
+# Download Click: 🎮 https://heyapks.com/bronceblass.html 🎮
 ![ảnh free file 1](https://github.com/user-attachments/assets/3db104b5-e7b2-4334-ae3f-8c8282df41cc)
 
 
